@@ -6,6 +6,6 @@ fuck u
 cmmm
 
 
-but we dont like to call bitch
+but we ccc like to call bitch
 
 lets do something
